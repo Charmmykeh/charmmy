@@ -1,2 +1,0 @@
-# charmmy
-Natural self care
